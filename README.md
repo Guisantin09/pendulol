@@ -1,2 +1,1 @@
-# pendulol
-stikman al reves sin brasos ni piernas XDDD, jugable
+# Actividad del alumno 1 C26 1:4
